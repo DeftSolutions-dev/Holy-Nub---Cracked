@@ -1,5 +1,7 @@
 # Holy-Nub - Cracked Source Code
 
+My contact: [t.me/desirepro](http://t.me/desirepro)
+
 ![30k broo](https://raw.githubusercontent.com/DeftSolutions-dev/Holy-Nub---Cracked/main/30k%20broo.png)
 ![20 year project? xdd](https://raw.githubusercontent.com/DeftSolutions-dev/Holy-Nub---Cracked/refs/heads/main/bruh%20moment%2020year....png)
 
